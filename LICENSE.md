@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for PC | Adobe Audition for Windows smart Template: pitch-shifting & EQ is the best Adobe Audition for PC | Adobe Audition for Windows template, featuring
 
 
 
